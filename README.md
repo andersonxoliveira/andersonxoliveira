@@ -1,4 +1,4 @@
-### Olá! E sou o Anderson Oliveira👋
+### Olá! Eu sou o Anderson Oliveira👋
 
 
 
